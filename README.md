@@ -1,0 +1,1 @@
+# Thermal-Screening-for-COVID-19
